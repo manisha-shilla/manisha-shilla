@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on new intersting things...
 - 📫 How to reach me ...
 https://www.instagram.com/MANISHA_SHILLA_/
+https://www.linkedin.com/in/manisha-shilla-7a8271252/
 
 
 <!---
